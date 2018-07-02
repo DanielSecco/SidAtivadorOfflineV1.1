@@ -1,0 +1,1 @@
+# SidAtivadorOfflineV1.1
